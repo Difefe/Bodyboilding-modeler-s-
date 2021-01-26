@@ -1,2 +1,3 @@
 # Bodyboilding-modeler-s-
-The beauty of shape's 
+The beauty of shaping the body
+
